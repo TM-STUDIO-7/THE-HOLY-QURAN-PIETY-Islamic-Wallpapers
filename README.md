@@ -9,6 +9,8 @@ Islamic Wallpapers "PC" size Background (1920x1080) In "jpg" format
 
 Islamic Wallpapers "SMART WATCH" size Background (400x400 & 700x700) In "jpg" format
 
+Islamic Wallpapers "Wallpapers" size Background (Original) In "jpg & jpeg" format & no logo
+
 -
 
 "The images used on this page were downloaded from Pixabay and have been modified to fit the usage."
